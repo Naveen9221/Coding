@@ -2,4 +2,4 @@
 
 
 
-https://docs.amd.com/r/EwEpX5RukCFOZJHEJvvKEw/root
+https://docs.amd.com/v/u/Shmzdn6KiH_SqVAvYizHZw
